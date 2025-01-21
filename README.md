@@ -1,0 +1,1 @@
+# polinela-merchandisestore
